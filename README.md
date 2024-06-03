@@ -21,6 +21,9 @@ Here is the screenshot
 
 ![Screenshot (50)](https://github.com/akanksha5300/Education-Analytics-for-a-University/assets/156895186/7dcdec0b-4bbb-4f17-8e6f-274d879c89d4)
 
+![Screenshot (51)](https://github.com/akanksha5300/Education-Analytics-for-a-University/assets/156895186/34dc4dc3-5133-41b2-889e-fa2728bd11a3)
+
+
 
 
 
